@@ -4,4 +4,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ──── ୨୧ ────
 
 ### _about me_
-my name is shay
+my name is shay *!!* i am __20__ years old (yes i knew the dinosaurs)
+
+im a aroace lesbian, born 04/21, infp :)
