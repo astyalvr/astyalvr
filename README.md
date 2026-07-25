@@ -9,6 +9,5 @@
 
 <p align="center">
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤmy name is shay *!!* i am __21__ years old (yes i knew the dinosaurs)
-
 <p align="center">
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤim a aroace lesbian, born 04/21, infp :)
