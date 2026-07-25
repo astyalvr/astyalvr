@@ -3,7 +3,7 @@
 </div>
 <text align="center">──── ୨୧ ────
 
-<text align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _about me_
-<text align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmy name is shay *!!* i am __21__ years old (yes i knew the dinosaurs)
+<text align="center"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _about me_
+<text align="center"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmy name is shay *!!* i am __21__ years old (yes i knew the dinosaurs)
 
-<text align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim a aroace lesbian, born 04/21, infp :)
+<text align="center"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim a aroace lesbian, born 04/21, infp :)
