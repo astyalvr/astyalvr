@@ -2,12 +2,24 @@
 <img width="918" height="431" alt="6c874cc483a5cfe58f152d16102e4ceb" src="https://github.com/user-attachments/assets/7d7449b4-6494-4ad9-bdc7-66376ef79493" />
 </div>
 <p align="center">
+ _*very yaoipilled*_
+ 
+<p align="center">
 ──── ୨୧ ────
 
 <p align="center">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _about me_
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _animanga_
 
 <p align="center">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤmy name is shay *!!* i am __21__ years old (yes i knew the dinosaurs)
+toilet bound hanako kun, given, sasaki to miyano, hirano to kagiura, seaside stranger, sk8 the infinity, demon slayer, tgcf, windbreaker, death note, seraph of the end, chainsaw man, hetalia, my hero academia, jujutsu kaisen, fruits basket, soul eater, link click, the summer hikaru died, hetalia, tamons b-side 
+
+<p align="center">
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _games_
+ 
+<p align="center">
+persona series, ensemble stars, corpse party, fortnite
+
  <p align="center">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤim a aroace lesbian, born 04/21, infp :)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### _music_
+<p align="center">
+stray kids, tomorrow x together, yena, enhypen, boynextdoor, ampers&one, alien stage, milgram, knights, ra*bits, esupuri, trickstar, hamilton, heathers, dear evan hansen, mean girls, be more chill
