@@ -3,7 +3,7 @@
 </div>
 
 <p align="center">
- _*very yaoipilled*_
+ *** very yaoipilled ***
  
 <p align="center">
 ──── ୨୧ ────
