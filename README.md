@@ -1,5 +1,5 @@
 <div id="header" align="center">
-<img src=https://github.<img width="918" height="431" alt="6c874cc483a5cfe58f152d16102e4ceb" src="https://github.com/user-attachments/assets/5ec629c7-696c-4863-9531-6616be4a23c7" 
+<img width="918" height="431" alt="6c874cc483a5cfe58f152d16102e4ceb" src="https://github.com/user-attachments/assets/7d7449b4-6494-4ad9-bdc7-66376ef79493" />
 </div>
 <text align="center">──── ୨୧ ────
 
