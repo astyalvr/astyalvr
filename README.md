@@ -9,7 +9,7 @@ very yaoipilled
 ──── ୨୧ ────
 
 <p align="center">
-usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes or on the rare occassion of a guess the skin (either partcipating or making skins). unfortunately i'm not open to c+h just because i simply don't want to, but i dont mind if you sit next to me at all.
+usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes or on the rare occassion of a guess the skin (either partcipating or making skins). unfortunately i'm not open to c+h for strangers just because i dont want to, but if we have similar interests and/or we're friends then i dont mind at all, but i dont mind if you sit next to me at all.
 
 <p align="center">
 ### _DNI_
@@ -21,7 +21,7 @@ basic dni criteria --> (https://basic-dfi-criteria.carrd.co/), proshippers (espe
 ### _BYI_
 
 <p align="center">
-i make dth jokes, so if youre uncomfy w that please let me know beforehand, i say slurs i can recclaim but i hardly say them in pt so, i get rlly passionate abt the things i like and will usually go on a tangent when given the chance to, i have severe anxiety so it takes me a while to respond to ppl/dms,
+i make dth jokes, so if youre uncomfy w that please let me know beforehand, i say slurs i can recclaim but i hardly say them in pt so, i get rlly passionate abt the things i like and will usually go on a tangent when given the chance to, i have severe anxiety so it takes me a while to respond to ppl/dms, i hide/block freely.
 
   <p align="center">
 ──── ୨୧ ────
