@@ -1,5 +1,5 @@
 <div id="header" align="center">
-<img width="918" height="431" alt="6c874cc483a5cfe58f152d16102e4ceb" src="https://github.com/user-attachments/assets/7d7449b4-6494-4ad9-bdc7-66376ef79493" />
+<img width="918" height="431" alt="6c874cc483a5cfe58f152d16102e4ceb" src="[https://github.com/user-attachments/assets/7d7449b4-6494-4ad9-bdc7-66376ef79493](https://i.pinimg.com/1200x/e0/37/3d/e0373d0318450614c0f5628cc3337e6e.jpg)" />
 </div>
 
 <p align="center">
@@ -9,7 +9,7 @@ very yaoipilled
 ──── ୨୧ ────
 
 <p align="center">
-usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes or on the rare occassion of a guess the skin (either partcipating or making skins). unfortunately i'm not open to c+h for strangers just because i dont want to, but if we have similar interests and/or we're friends then i dont mind at all, but i dont mind if you sit next to me at all.
+usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes or on the rare occassion of a guess the skin (either partcipating or making skins). as far as c+h, im open to it, especially if we share the same interests :) though i am a little shy and have like crazy severe anxiety so keep that in mind when interacting with me.
 
 <p align="center">
 ### _DNI_
