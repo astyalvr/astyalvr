@@ -9,7 +9,7 @@ very yaoipilled
 ──── ୨୧ ────
 
 <p align="center">
-usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes or on the rare occassion of a guess the skin (either partcipating or making skins). as far as c+h, im open to it, especially if we share the same interests :) though i am a little shy and have like crazy severe anxiety so keep that in mind when interacting with me.
+usually afk either writing, playing enstars, or in menu. feel free to int via whispers :] i will respond whenever i get a chance !! you'll mostly find me in fashion roulettes, docks, enstars/rhythm game area, or on the rare occassion of a guess/find the skin (either participating or making skins). as far as c+h, im open to it, especially if we share the same interests :) though i am a little shy and have like crazy severe anxiety so keep that in mind when interacting with me.
 
 <p align="center">
 ### _DNI_
