@@ -1,9 +1,9 @@
 <div id="header" align="center">
-<img width="960" height="540" alt="e0373d0318450614c0f5628cc3337e6e-2" src="https://github.com/user-attachments/assets/846e1a04-656e-470f-90d1-0976f53d7db1" />
+<img width="1065" height="720" alt="e110d17685c339d6837ba5692b5db339" src="https://github.com/user-attachments/assets/6275dcca-ce9d-4bc6-8c39-873304bc0c8c" />
 </div>
 
 <p align="center">
-very yaoipilled
+❝ i hope big mean sena grows mold all over his body and dies a slow and painful death ♪ ❞
  
 <p align="center">
 ──── ୨୧ ────
