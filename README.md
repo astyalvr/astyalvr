@@ -15,7 +15,7 @@ usually afk either writing, playing enstars, or in menu. feel free to int via wh
 ### _DNI_
 
 <p align="center">
-basic dni criteria --> (https://basic-dfi-criteria.carrd.co/), proshippers (especially those at the proship tree), people who hate on others interests (such as vague dissing on smth someone likes), u have any discomfort/hate towards my favs openly or at all.
+basic dni criteria --> (https://basic-dfi-criteria.carrd.co/), proshippers (especially those at the proship tree), people who hate on others interests (such as vague dissing on smth someone likes), u have any discomfort/hate towards my favs openly or at all, 16 and under (or just limit interactions unless i say otherwise).
 
  <p align="center">
 ### _BYI_
